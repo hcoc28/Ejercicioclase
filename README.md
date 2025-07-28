@@ -1,0 +1,1 @@
+Soy Eduardo Coc, apasionado por el aprendizaje y el desarrollo personal. Me gusta explorar nuevas ideas, enfrentar desafíos y compartir conocimientos. Este espacio es una muestra de mi trabajo y dedicación. ¡Gracias por visitar mi proyecto!
